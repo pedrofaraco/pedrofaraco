@@ -2,14 +2,14 @@
 - 🧑🏻‍🦰 Passionate husband of @lilianelondon
 - 👨‍👩‍👧‍👧 Short-tempered dad of Fernanda and Manuela
 - 🇺🇸 “Full-absentee” Entrepreneur (true story...)
-- 🪰 Quality Assurance Specialist
+- 🪰 Quality Assurance Manager
 - 🗽 “Faraquian-school” Libertarian
 - 💰 Bitcoin enthusiast since 2013
 - ♟ Chess arbiter
 - 🏃🏻‍♂️ Eventual runner
 - ⛵️ Online skipper
 
-- 📍Rio de Janeiro, Brazil
+- 📍Weston, Florida, United States
 
 <!---
 pedrofaraco/pedrofaraco is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
